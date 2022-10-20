@@ -1,3 +1,3 @@
-# ChoiJisu
+# ChoiJisu 최지수 화이팅~
 
-최지수 화이팅~
+
